@@ -9,4 +9,4 @@ Meu nome e Hector
 
   00001097525053sp@al.educacao.sp.gov.br
 
-![](<img src="https://media.tenor.com/Qon1WFhOie4AAAAi/sukuna-butt.gif" alt="Sukuna Butt Sticker"/>![image](https://github.com/user-attachments/assets/f8d6f377-e96a-48dd-9352-e14046330293))
+![](https://media.tenor.com/Qon1WFhOie4AAAAi/sukuna-butt.gif)
